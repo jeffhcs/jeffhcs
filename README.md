@@ -1,4 +1,4 @@
-### Free is the puppet that loves their strings.🎭 
+### Free is the puppet that loves their strings.❤️
 
 <!--
 **jeffhcs/jeffhcs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
